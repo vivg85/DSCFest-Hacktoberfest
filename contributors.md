@@ -6,4 +6,6 @@ Farhan Kapadia<br/>
 Harsh Kapadia <br/>
 Mohit S Punjabi <br/>
 DSC Vivekanand <br/>
+Hritwik Ekade</br>
+
 Smith Gajjar Vivekanand</br>
